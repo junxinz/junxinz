@@ -1,5 +1,1 @@
-- 👋 Hi, I’m Junxin (or emily)
-- 👀 I’m interested in: food <3
-- 🌱 I’m currently learning: coding
-- 💞️ I’m looking to collaborate on: idk :D
-- 📫 How to reach me: you don't
+Meow Meow Meow Meow Meow 😎🫠🦆➳❤️
